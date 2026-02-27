@@ -2,7 +2,6 @@
 - 👀 I’m interested in Technology, Theory of Knowledge, Interconnectedness of things, Woodturning.
 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 612-812-8570
 
 - My GitHub Haiku:
 - Please handle with care
