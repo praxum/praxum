@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @praxum
 - 👀 I’m interested in Technology, Theory of Knowledge, Interconnectedness of things, Woodturning.
-- 🌱 I’m currently learning Blockchain, NFTs
+
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 612-812-8570
 
